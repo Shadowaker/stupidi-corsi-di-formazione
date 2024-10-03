@@ -1,0 +1,1 @@
+# stupidi-corsi-di-formazione
